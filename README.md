@@ -1,3 +1,3 @@
-**New 3D portfolio **
+**New 3D portfolio**
 
 currently under maintenance.
